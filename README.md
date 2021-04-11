@@ -1,0 +1,1 @@
+# Hamachi-dazo.github.io
